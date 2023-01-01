@@ -1,0 +1,2 @@
+# awal-resolusi
+untuk belajar
